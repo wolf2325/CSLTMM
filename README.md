@@ -1,2 +1,0 @@
-# pnQuy23
-CSLTMM
